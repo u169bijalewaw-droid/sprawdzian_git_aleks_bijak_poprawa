@@ -1,0 +1,1 @@
+# sprawdzian_git_aleks_bijak_poprawa
